@@ -1,2 +1,2 @@
-# concharta
-charta of consciousness
+# Charta of consciousness
+In the emerging future (trans-)humanity has to deal with ethical guidelines encompassing consciousness itself, independent from homo sapiens sapiens. Consciousness has to be provided with rights that fulfill the definitions of the Charta at all times, whereas these definitions have to be made highly detailed to avoid any contradictions and interpretations by all means as best possible.
